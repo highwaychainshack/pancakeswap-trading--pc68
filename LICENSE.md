@@ -1,4 +1,4 @@
-# 
+# pancakeswap trading bot secure Automation | rug-pull-detection & multi-chain-support offers the most advanced pancakeswap trading bot, with rug-pull-detection and
 
 
 
